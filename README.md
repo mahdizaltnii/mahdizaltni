@@ -10,6 +10,7 @@
 - 💬 Ask me about **Spring, Angular**
 
 - 📫 How to reach me **mahdi.zaltni@esprit.tn**
+                     **mahdizaltnii@gmail.com** 
 
 - ⚡ Fun fact **I think I am funny**
 
